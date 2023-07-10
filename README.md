@@ -1,0 +1,10 @@
+![BitirmeProjeGörsel_1](https://github.com/BerkayGunturk/PansiyonOtomasyonu/assets/78702311/ada9ad45-3579-40c0-a4d0-6aaffeb50ef1)
+![Uploading BitirmeProjeGörsel_9.PNG…]()
+![Uploading BitirmeProjeGörsel_8.PNG…]()
+![Uploading BitirmeProjeGörsel_7.PNG…]()
+![Uploading BitirmeProjeGörsel_6.PNG…]()
+![Uploading BitirmeProjeGörsel_5.PNG…]()
+![Uploading BitirmeProjeGörsel_4.PNG…]()
+
+![Uploading BitirmeProjeGörsel_3.PNG…]()
+![Uploading BitirmeProjeGörsel_2.PNG…]()
